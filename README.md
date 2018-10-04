@@ -12,3 +12,5 @@ Yo soy tu gominola (también conocida como "Osito gominola") es una canción bai
 #The second gormionola receipt is with paella:
 
 Mix some gormionolas with a paella and that's it!!!
+
+There was some problem mixing gormionolas with paella: my stomach exploded!!!
